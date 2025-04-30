@@ -15,7 +15,7 @@
 - **Publisher**: Blue Hill Publications
 - **ISBN**: 978-9394457518
 - **Year**: 2022
-- [ Buy on Amazon](https://www.amazon.in/Saturn-Shubhangi-Singh/dp/9394457518)
+- [ Where to grab the book?](https://www.amazon.in/Saturn-Shubhangi-Singh/dp/9394457518)
 
 ---
 
@@ -42,7 +42,7 @@
 ##  Media 
 
 - [Amazon Listing](https://www.amazon.in/Saturn-Shubhangi-Singh/dp/9394457518)
-- Instagram: [@bytewithshub](https://instagram.com/sheisawolf._)
+- Instagram: [@Me](https://instagram.com/sheisawolf._)
 
 ---
 
