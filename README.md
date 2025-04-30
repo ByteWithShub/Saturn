@@ -24,7 +24,7 @@
 - Book Summary & About the author
 - Cover and design materials
 - Quote cards & aesthetic previews of Saturn
-- Unreleased poems (optional extras) 
+- Unreleased poems 
 
 ---
 
