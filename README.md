@@ -21,11 +21,10 @@
 
 ## What's Inside
 
-- Book Summary & Author’s Note
-- Cover and promotional materials
-- Quote cards & aesthetic previews
-- Unreleased poems (optional extras)
-- Publishing journey notes
+- Book Summary & About the author
+- Cover and design materials
+- Quote cards & aesthetic previews of Saturn
+- Unreleased poems (optional extras) 
 
 ---
 
